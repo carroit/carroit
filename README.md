@@ -1,4 +1,4 @@
-Hello there My name is lidya Tadesse
+Hello there I am lidya Tadesse
 =====================================================================================================================================
 
 Web developer
